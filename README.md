@@ -26,7 +26,7 @@ The company can utilise this knowledge for its portfolio and risk assessment.
 
 ### Contributors
 - Ajay Singh (ajaysinghrajput1@gmail.com)
-- Rohit Agarwal (agarwal.rohit0597@gmail.comajaysinghrajput1@gmail.com)
+- Rohit Agarwal (agarwal.rohit0597@gmail.com)
 
 
 
